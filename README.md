@@ -12,3 +12,6 @@ Our team consisting of expert gambling professionals examined numerous virtual c
 | #3   | [CasaBet](https://pokiesreal.money/go/casabet)     | 4.8/5 ⭐ | 250% up to $4,000 + 100 Free Spins | 1-3 days          | 8,000+     | Largest game selection & crypto payments |
 | #4   | [Boho Casino](https://pokiesreal.money/go/boho-casino) | 4.7/5 ⭐ | 150% up to $2,500 + 100 Free Spins | 1-2 days          | 6,500+     | Tournaments & sports betting             |
 | #5   | [CasinoNic](https://pokiesreal.money/go/casinonic)    | 4.7/5 ⭐ | 5 BTC + 250 Free Spins               | Minutes (crypto)  | 7,200+     | Crypto users & instant withdrawals       |
+
+Published: March 16, 2025
+Last updated: March 17, 2025 - Information subject to change as casino offerings are regularly updated.
